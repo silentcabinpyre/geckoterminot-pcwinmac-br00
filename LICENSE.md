@@ -1,4 +1,4 @@
-# 
+# VIP geckoterminal sniper bot herramientas para Mac OS | Exclusivo geckoterminal sniper bot herramientas para PC Windows. Con pruebas de simulación y detección de tendencias — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
